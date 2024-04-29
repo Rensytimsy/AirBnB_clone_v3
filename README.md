@@ -1,1 +1,1 @@
-This project has been done by sam kamau and Timothy mutwiri
+sam kamau and Timothy Mutwiri were here
